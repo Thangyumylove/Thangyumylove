@@ -6,6 +6,10 @@
 
 . . void, lulu/lolo, cooki. . 
 
+. . . https://cookisworld.carrd.co . . .
+
+. . https://cookis.straw.page . .
+
 ![image](https://github.com/user-attachments/assets/75dde82f-be39-4c88-83af-545085abefcb)
 
 🍰 . . . sept 7 . . .🧁
