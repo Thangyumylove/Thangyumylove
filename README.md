@@ -3,6 +3,7 @@
 ![image](https://github.com/user-attachments/assets/2b3175d7-5f18-4864-889e-34bcdfcbbed4)
 
 . . . she / they . . .
+
 . . void, lulu/lolo, cooki. . 
 
 ![image](https://github.com/user-attachments/assets/75dde82f-be39-4c88-83af-545085abefcb)
