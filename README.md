@@ -23,12 +23,14 @@ KNY, CBG, omori, JJK, FPE, TADC, TDI, TAWOG, Homesick, School bus graveyard,
 FNAF, TTC, Hazbin Hotel, High Rise Invasion, Marionetta, Undertale, Stardew valley,
 music, Pressure, Deadpool, HBG, Dandy’s World, JJS, TPN, SQ1-SQ-2, PT, SP, Goldy pond, crk, block tales, video girl AI
 
-![image](https://github.com/user-attachments/assets/e4a2a364-2a7d-40f2-97f1-5816c09c88c9)
+![image](https://github.com/user-attachments/assets/e4fa0631-006a-4dfb-8f45-610eb23cd49d)
+
 
 𝐃𝐍𝐈 ::
 racists, homophobes, sexists, pedos, js weirdos in general
 
-![image](https://github.com/user-attachments/assets/346e4fa2-c45e-44ff-ae0a-a5b6c895c391)
+![image](https://github.com/user-attachments/assets/88789968-ff46-4fa8-b931-3b6e1b4ff4c5)
+
 
 ![image](https://github.com/user-attachments/assets/0fe16d00-7561-49e6-86bd-51801d42d515)
 
