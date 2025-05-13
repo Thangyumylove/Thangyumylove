@@ -14,7 +14,8 @@
 
 🍰 . . . sept 7 . . .🧁
 
-![image](https://github.com/user-attachments/assets/75dde82f-be39-4c88-83af-545085abefcb)
+![image](https://github.com/user-attachments/assets/9d412c65-9b34-489b-a79c-1c0bba26fe6e)
+
 
 𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒 ::
 cats, art, reading, Sanrio, FNF, LN, bullying kids on Roblox/NSRS, 
