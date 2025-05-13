@@ -1,5 +1,5 @@
-![image](https://github.com/user-attachments/assets/81377367-d212-429d-a919-5f8550bd394a)
-![image](https://github.com/user-attachments/assets/d4462a67-b0f2-4dba-8ade-d73cdc50b61e)
+![image](https://github.com/user-attachments/assets/8566ad87-f11c-42cd-a582-71209c5289cf)
+![image](https://github.com/user-attachments/assets/12a6ffae-f26e-45c5-9249-c5153b97bea2)
 ![image](https://github.com/user-attachments/assets/2b3175d7-5f18-4864-889e-34bcdfcbbed4)
 
 . . . she / they . . .
