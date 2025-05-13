@@ -1,20 +1,22 @@
-![image](https://github.com/user-attachments/assets/81377367-d212-429d-a919-5f8550bd394a)
-![image](https://github.com/user-attachments/assets/d4462a67-b0f2-4dba-8ade-d73cdc50b61e)
-![image](https://github.com/user-attachments/assets/2b3175d7-5f18-4864-889e-34bcdfcbbed4)
+![image](https://github.com/user-attachments/assets/8566ad87-f11c-42cd-a582-71209c5289cf)
+![image](https://github.com/user-attachments/assets/12a6ffae-f26e-45c5-9249-c5153b97bea2)
+![image](https://github.com/user-attachments/assets/51a0879a-160f-4dd8-af53-691e202bddd1)
+
 
 . . . she / they . . .
 
 . . void, lulu/lolo, cooki. . 
 
-. . . https://cookisworld.carrd.co . . .
 
 . . https://cookis.straw.page . .
 
-![image](https://github.com/user-attachments/assets/75dde82f-be39-4c88-83af-545085abefcb)
+![image](https://github.com/user-attachments/assets/fa8cb88e-3ed1-4c69-b0d9-a43f2f016025)
+
 
 🍰 . . . sept 7 . . .🧁
 
-![image](https://github.com/user-attachments/assets/75dde82f-be39-4c88-83af-545085abefcb)
+![image](https://github.com/user-attachments/assets/902e9929-b111-4ab8-ae89-0325db02a934)
+
 
 𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒 ::
 cats, art, reading, Sanrio, FNF, LN, bullying kids on Roblox/NSRS, 
